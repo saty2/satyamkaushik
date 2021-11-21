@@ -3,7 +3,7 @@
 |Sizhe Fan  |fansizhe| 1007016168 |sizhe.fan@mail.utoronto.ca  |ε==MM==3#4875 on Discord   |fsz1885           |
 |Richard Guo|guoricha| 1004295577 |richard.guo@mail.utoronto.ca|@INeedCoffee#7827 on Discord |stuckinidolhell   |
 |Satyam Kaushik|kaushi46|1006846068|satyam.kaushik@mail.utoronto.ca|instagram- Satyam.kaushik |saty2             |
-|           |        |            |       |                     |                  |
+|Yoshiyuki Sanada|sanadayo|1007412024|y.sanada@mail.utoronto.ca|YS#9636 on discord|KappaYoshi|
 |           |        |            |       |                     |                  |
 
 ---
